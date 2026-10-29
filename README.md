@@ -30,3 +30,7 @@ I'm an MBA student interested in **Data Analytics, Business Intelligence, and Ma
 To turn raw data into meaningful business insights, with a focus on analytics and customer behavior.
 
 ✨ *Learning, analyzing, and growing one dataset at a time.*
+
+## 🤝 Connect with Me
+
+- 💼 LinkedIn: [Connect with me](https://www.linkedin.com/in/ananjay-ravindran-36a479297/)
